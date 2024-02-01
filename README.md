@@ -10,5 +10,5 @@ Here are some ideas to help you get started:
 - 👯 I want to cooperate with large companies
 - 🤔 I need help learning Python
 - 😄 Pronouns: kek
-- ⚡ Fun Fact: I Love Chemistry
+- ⚡ Fun Fact: I Love Chemistry and kinder maxi king
   
